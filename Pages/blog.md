@@ -2,7 +2,8 @@
 layout: OurStory
 ---
 
-When Moses saw the burning bush, why did he get curious? What made him approach the burning bush? In the Bible, we read, the bush was burning far on the mountain. Moses saw the bush burning and approached it to investigate. I feel that the bush could have been burning for a longer time and Moses could have seen it much earlier and ignored it assuming it to be the result of travelers or shepherds cooking their food or keeping themselves warm or to ward off dangerous animals. 
+#Encounter
+##When Moses saw the burning bush, why did he get curious? What made him approach the burning bush? In the Bible, we read, the bush was burning far on the mountain. Moses saw the bush burning and approached it to investigate. I feel that the bush could have been burning for a longer time and Moses could have seen it much earlier and ignored it assuming it to be the result of travelers or shepherds cooking their food or keeping themselves warm or to ward off dangerous animals. 
  
 So then what made him change his mind? why did he get intrigued and set out to explore? 
 Though these presumptions could have been the initial reasons for his delay to investigate – this delay could have been of few days or few weeks! What fascinated him was that the bush continued to burn with same intensity, and if had been man-made then it should have got extinguished days ago and if it had been work of nature then it should have by now burnt that part of the mountain! Nothing of that happened. In fact, he noticed that the burning bush would burn at a same intensity – irrespective of the direction of the winds and would ever seem to spread for days. He realizes that this fire was different, this knowledge was enough to inspire his curiosity to seek answers to all the questions and doubts forming in his mind. 
