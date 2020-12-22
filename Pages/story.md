@@ -1,7 +1,3 @@
----
-layout: OurStory
----
-
 ![Burning Bush Banner](https://ncr-my.sharepoint.com/personal/ja185228_ncr_com/Documents/Pictures/FB_logo.png)
 
 #Burning Bush - Our Story
